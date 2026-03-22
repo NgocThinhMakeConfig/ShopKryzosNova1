@@ -1,1 +1,0 @@
-# ShopKryzosNova1
